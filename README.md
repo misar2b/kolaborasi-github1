@@ -3,6 +3,4 @@
 
 ## Anggota Kelompok
 - Misar
-- Nama Anggota 2
-
-
+- A'fifah Gholimatun A'zzali
